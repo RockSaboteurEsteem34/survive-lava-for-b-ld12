@@ -1,4 +1,4 @@
-#  
+#  survive lava for brainrots no-ban Scripts is the best survive lava for brainrots Script, featuring undetectable and instant win. Safe and powerful
 
 
 
